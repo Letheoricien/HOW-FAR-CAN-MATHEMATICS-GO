@@ -4,7 +4,7 @@ We are a group of former mathematics students who would like to tell you about t
 
 ![Member](./US.jpg)
 
-[Please, register here](https://drive.google.com/file/d/1FfeSddxmbV_Audq9duNZ5NWbJ20ZyIai/view?usp=drive_link)
+[Please, register here](https://qrco.de/bfS4lP)
 
 [clic here to  watch the talks during our preparatory meeting](https://drive.google.com/file/d/1FfeSddxmbV_Audq9duNZ5NWbJ20ZyIai/view?usp=drive_link)
 
