@@ -2,7 +2,7 @@
 A series of workshops to expose undergraduate students to real-life applications of mathematics and related career opportunities.
 We are a group of former mathematics students from the University of Yaounde 1, Cameroon, now in different professions, who would like to share our experience.
 
-![Member](./Flyer0.jpg)
+![Member](./US.jpg)
 
 [Please, register here for the upcoming worhshops](https://docs.google.com/forms/d/e/1FAIpQLSeHaIzC-cKjFsKa3nsVuUfatDVNKkG4hOe1k7Iv6O-BYkvuug/viewform?usp=sf_link)
 
