@@ -4,7 +4,7 @@ We are a group of former mathematics students from the University of Yaounde 1, 
 
 ![Member](./US.jpg)
 
-[Please, register here for the upcoming worhshops](https://docs.google.com/forms/d/e/1FAIpQLSeHaIzC-cKjFsKa3nsVuUfatDVNKkG4hOe1k7Iv6O-BYkvuug/viewform?usp=sf_link)
+[Please, register here for the upcoming workshops](https://docs.google.com/forms/d/e/1FAIpQLSeHaIzC-cKjFsKa3nsVuUfatDVNKkG4hOe1k7Iv6O-BYkvuug/viewform?usp=sf_link)
 
 [To see pictures of the inauguration event, click here](https://drive.google.com/drive/folders/1Ppzy8oI-qy96I1mjETr3m-qS7y09nRLL?usp=drive_link)
 
